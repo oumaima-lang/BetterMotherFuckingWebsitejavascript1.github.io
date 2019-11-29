@@ -1,1 +1,1 @@
-https://BetterMotherFuckingWebsitejavascript1.github.io
+https://pyramide.github.io
